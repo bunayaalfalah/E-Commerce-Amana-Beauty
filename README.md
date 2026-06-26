@@ -1,1 +1,0 @@
-# E-Commerce-Amana-Beauty
